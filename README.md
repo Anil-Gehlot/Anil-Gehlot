@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-**Hello, I am Anil Gehlot**
+**Hello, I am Anil Gehlot.**
 ---
 ### 👦 About Me
 - 👨‍💻 I'm a MCA final year student at International Institute of Professional Studies( Devi Ahilya Vishwavidhyalaya ).
